@@ -5,4 +5,4 @@ It is an Operating System. Now, It's like a child but I am continously working o
 
 Pray for me.❤️
 
-Buid Small, Build Wierd🌱🌀
+Buid Small, Build Weird🌱🌀
